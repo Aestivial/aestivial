@@ -30,7 +30,7 @@
 - 💬 Ask me about tech or geeky stuff
 - 📫 How to reach me: @aestivial_ on instagram
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Steve Jobs was adopted.
+- ⚡ Fun fact: The world's first computer programmer was a woman named Ada Lovelace.
 
 ---
 
